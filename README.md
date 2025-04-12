@@ -33,4 +33,4 @@ https://github.com/user-attachments/assets/7846e334-a012-4b36-bfd1-02d606c076c4
 
 ---
 
-## ❤️ Réalisé par: Loubna azerbi
+## Réalisé par: Loubna azerbi
